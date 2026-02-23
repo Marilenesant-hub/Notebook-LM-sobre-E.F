@@ -26,4 +26,6 @@ Resposta: São juros calculados sobre o valor inicial somado aos juros acumulado
 
 Pergunta: O que é Educação Financeira?
 Resposta: Educação financeira é o conjunto de conhecimentos que ajudam na organização, controle e planejamento do uso do dinheiro.
-🏛️ 💰
+💷💶💰
+
+Por_que_seu_cérebro_sabota_suas_finanças.m4a
