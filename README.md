@@ -29,3 +29,4 @@ Resposta: Educação financeira é o conjunto de conhecimentos que ajudam na org
 💷💶💰
 
 Por_que_seu_cérebro_sabota_suas_finanças.m4a
+https://notebooklm.google.com/notebook/bf932504-495d-4485-ad02-09c81f3df8f1
